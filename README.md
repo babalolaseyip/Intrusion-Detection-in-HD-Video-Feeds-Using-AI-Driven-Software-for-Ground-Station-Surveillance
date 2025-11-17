@@ -77,3 +77,11 @@ Reagan Abrahams
 Cape Town, South Africa
 0764618185
 www.linkedin.com/in/reagan-abrahams
+
+Supervisor
+
+Dr Oluwaseyi P. Babalola
+Lecturer and Researcher
+Department of electrical electronic and computer engineering
+Cape Peninsula University of Technology
+Cape Town, South Africa
